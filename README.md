@@ -1,4 +1,4 @@
-# Kotoha – それで充分だよ。 (Cover) - That's Enough. (Cover)
+# Kotoha – それで充分だよ。 (Cover)
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
